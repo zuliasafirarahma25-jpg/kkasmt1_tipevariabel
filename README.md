@@ -1,0 +1,1 @@
+# kkasmt1_tipevariabel
